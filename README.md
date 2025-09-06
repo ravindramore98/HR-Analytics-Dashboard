@@ -98,4 +98,4 @@ This dashboard can help HR teams:
 👤 **Ravindra More**  
 💼 Data Analyst (3.4 Years Experience)  
 📍 Pune, India  
-🔗 [LinkedIn Profile](linkedin.com/in/ravindramore031/)
+🔗 [LinkedIn Profile](https://www.linkedin.com/in/ravindramore031/)
